@@ -1,5 +1,5 @@
-- 👋 meu nome é wellyngton
-- 👀 Estudo no colégio minton carneiro
+- 👋 meu nome é wellyngton batista de brito
+- 👀 Estudo no colégio minton carneiro:turma 1 B
 - 🌱 faço musculação e diéta par ficar igual um Deus grego
 - 💞️ uma dia a terra vai ser qualdrada
 - 📫 partiu pra a academia seu frango
